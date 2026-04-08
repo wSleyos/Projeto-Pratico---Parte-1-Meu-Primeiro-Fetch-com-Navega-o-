@@ -1,0 +1,1 @@
+# Projeto-Pratico---Parte-1-Meu-Primeiro-Fetch-com-Navega-o-
